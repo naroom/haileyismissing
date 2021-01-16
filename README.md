@@ -8,18 +8,18 @@ She has a tattoo of the Greek letter lambda (λ) on her right arm just below the
 
 If you have any information, please contact the Rockdale County Sheriff at **(770) 278-8000** and reference case #20182984. You may also send information via email to [haileyismissing@gmail.com](mailto:haileyismissing@gmail.com).
 
-![Hailey Headshot 2020-10-31](img/hailey1.jpg)
+![Hailey Headshot 2020-10-31](img/hailey1.jpg)<br />
 Photo taken October 31, 2020
 
-![Hailey Headshot 2020-05-22](img/hailey2.png)
+![Hailey Headshot 2020-05-22](img/hailey2.png)<br />
 Photo taken May 22, 2020
 
-![Hailey Full Body Shot 2020-11-20](img/hailey3.png)
+![Hailey Full Body Shot 2020-11-20](img/hailey3.png)<br />
 Photo taken November 20, 2020
 
-![Hailey Full Body Shot 2020-08-25](img/hailey4.jpg)
+![Hailey Full Body Shot 2020-08-25](img/hailey4.jpg)<br />
 Photo taken August 25, 2020
 
-![Hailey Lambda Tattoo](img/hailey_tattoo.jpg)
+![Hailey Lambda Tattoo](img/hailey_tattoo.jpg)<br />
 Photo of the lambda tattoo on Hailey's right arm
 
