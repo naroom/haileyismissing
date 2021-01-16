@@ -1,5 +1,3 @@
-# haileyismissing
-
 ![missing persons](img/missing.png)
 
 Hailey Elayne Worthy is missing. She was last seen in Cincinnati, Ohio on December 14. 
