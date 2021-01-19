@@ -1,10 +1,10 @@
 ![Missing Persons Photo](img/missing.png)
 
-**Hailey Elayne Worthy** is missing. She was last seen in **Cincinnati, Ohio, on December 14, 2020**. 
+**Hailey Elayne Worthy** is missing. Her car was last seen in **Cincinnati, Ohio, on December 14, 2020**. 
 
 She was driving between Atlanta, Georgia, and Michigan in a **2016 Nissan Sentra** (Georgia license plate CGD5221, VIN 3N1AB7AP1GY338836).
 
-She has a tattoo of the Greek letter lambda (λ) on her right arm just below the wrist. See the photos below.
+She has a tattoo of the Greek letter lambda (λ) on her right arm just below the wrist. She is about 5'5" and weighs about 135 lbs. See the photos below.
 
 If you have any information, please contact the Rockdale County Sheriff at **(770) 278-8000** and reference case #20182984. You may also send information via email to [haileyismissing@gmail.com](mailto:haileyismissing@gmail.com).
 
