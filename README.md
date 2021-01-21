@@ -6,6 +6,8 @@ She was driving between Atlanta, Georgia, and Michigan in a **2016 Nissan Sentra
 
 She has a tattoo of the Greek letter lambda (λ) on her right arm just below the wrist. She is about 5'5" and weighs about 135 lbs. See the photos below.
 
+You can view Hailey's case in NamUs, the National Missing and Unidentified Persons System, [here](https://www.namus.gov/MissingPersons/Case#/76769).
+
 If you have any information, please contact the Rockdale County Sheriff at **(770) 278-8000** and reference case #20182984. You may also send information via email to [haileyismissing@gmail.com](mailto:haileyismissing@gmail.com).
 
 ![Hailey Headshot 2020-10-31](img/hailey1.jpg)<br />
